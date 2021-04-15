@@ -13,8 +13,10 @@
 - ⚡ Hobbies: Playing chess, news feeding
 
 
+![](https://komarev.com/ghpvc/?username=rohinth076&color=blueviolet&style=flat)
 
 <br />
+
 
 ## Contact Me:
 
